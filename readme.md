@@ -10,3 +10,4 @@ Honestly, all you needed to do is skip the auth process since it was loading fro
 
 # Some cool info
 I might want to start getting his British ass info leaked again. Remember, I don't live that far from Manchester, Matthew.
+PS: https://discord.gg/supplierz will be selling the best redeemer on market once this gets patched ;)
